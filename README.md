@@ -1,0 +1,2 @@
+# Manifesto
+Epesi Academy Manifesto
